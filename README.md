@@ -55,7 +55,7 @@
 
 - 💬 Ask me about **Java** ☕️🔥.
 
-- ⭐ I love **Art**, **Games** and **Animes!**
+- ⭐ I love **Art**, **BOARD GAMES**, **Games** and **Animes!**
 
 - 💘 I also love creating tech content and helping developers like me 🤗
 
